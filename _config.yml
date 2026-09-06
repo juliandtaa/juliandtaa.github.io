@@ -1,0 +1,67 @@
+# Site settings
+title: Wrong Kind of Wife
+email:
+description: >-
+  Private notes from a married woman who knows exactly what she's doing.
+  Loyalty isn't the point. If that bothers you, leave.
+github_username: juliandtaa
+minimal_mistakes_skin: dark
+search: true
+
+# Build settings
+markdown: kramdown
+remote_theme: mmistakes/minimal-mistakes
+permalink: /:title/
+paginate: 10
+paginate_path: /page:num/
+timezone: Asia/Jakarta
+
+include:
+  - _pages
+
+plugins:
+  - jekyll-paginate
+  - jekyll-sitemap
+  - jekyll-gist
+  - jekyll-feed
+  - jemoji
+  - jekyll-include-cache
+
+author:
+  name   : "Julia Anindita"
+  bio    : "35. IT Manager. Married. Writing this at hours a good wife shouldn't be awake."
+  links:
+    - label: "GitHub"
+      icon: "fab fa-fw fa-github"
+      url: "https://github.com/juliandtaa"
+
+footer:
+  links:
+    - label: "GitHub"
+      icon: "fab fa-fw fa-github"
+      url: "https://github.com/juliandtaa"
+
+defaults:
+  - scope:
+      path: ""
+      type: posts
+    values:
+      layout: single
+      author_profile: true
+      read_time: false
+      comments: false
+      share: false
+      related: false
+  - scope:
+      path: "_pages"
+      type: pages
+    values:
+      layout: single
+      author_profile: true
+
+category_archive:
+  type: liquid
+  path: /categories/
+tag_archive:
+  type: liquid
+  path: /tags/
