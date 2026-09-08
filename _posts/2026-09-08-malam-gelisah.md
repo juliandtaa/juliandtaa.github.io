@@ -5,10 +5,17 @@ categories:
   - jurnal
 ---
 
-Suami udah tidur. Aku baru selesai mandi. Bau sabun masih nempel di lengan, rambut basah, AC dingin. Rumah sepi tapi nggak kosong. Napas dia dari kamar. Gelas di meja. Baju kerja digantung rapi di kursi. Kelihatan beres. Aku yang nggak.
+Suami udah tidur. Aku baru selesai mandi.
+Bau sabun masih nempel di lengan, handuk masih melilit di kepala, AC ruang tengah dingin. Rumah sepi, tapi nggak kosong. Ada dengkur halus dia dari balik pintu kamar. Gelas kopi sisa tadi sore di meja. Kemeja kerjanya tergantung rapi di sandaran kursi. Kelihatan beres. Cuma isi kepalaku yang berantakan.
 
-Aku buka chat di sofa. Satu orang nunggu sejak sore. Foto hotel, kamar kosong, lampu kuning. Aku zoom. Lama. Tutup lagi. Jari aku gemeter dikit. Belum. Biarin duduk sendiri dulu. Aku suka yang lapar. Aku juga lagi lapar. Pengen dipegang. Pengen dibuka. Pengen dipakai sampe capek. Paha dingin. Memek masih gelisah. Aku geser kaki, napas pendek, marah dikit sama diri sendiri karena belum pilih.
+Aku duduk di sofa, buka layar HP. Satu chat nunggu dari sejam yang lalu. Isinya cuma foto: kamar hotel, ranjang kosong, lampu kuning temaram. Aku zoom. Lama. Tutup lagi, HP kubalik di paha. Jariku agak gemetar. Itu dari salah satu partner seksku.
 
-Di kantor tadi ada alarm palsu. Aku turun ke NOC, dingin, bau mesin. Masnya ikut bawa laptop, fokus banget. Aku berdiri di belakang, ngeliat lehernya sebentar. Gampang. Enak. Dan bikin aku jengkel. Dia punya yang lain. Aku juga. Mainan yang nyaman bisa ditunda. Tapi tadi aku hampir dorong dia ke dinding. Hampir. Untung nggak. Malam ini bukan buat dia.
+Belum. Biarin dia duduk nunggu sendirian dulu di sana. Aku suka kalau doi mulai lapar.
 
-Sekarang paha dingin. Pengen dipegang. Pengen dipakai sampe capek. Stok malam ini masih terbuka. Aku belum pilih. Tapi aku nggak sabar. Dan aku nggak mau sabar lama-lama.
+Aku juga lapar. Pengen ditarik, dibuka, dipake sampai capek. Paha dingin, tapi memek masih gelisah, basah dan nuntut. Aku geser posisi duduk, napas pendek-pendek, kesel sendiri karena sampai sekarang belum mutusin mau ambil atau enggak.
+
+Pemicunya tadi siang. Sempat ribet sebentar di lantai bawah. Masnya ikut bawa laptop, fokus banget ngetik. Pas berdiri di belakangnya, aku sempat ngeliatin lehernya. Gampang banget kalau mau diambil saat itu juga. Enak, tapi bikin jengkel karena terlalu gampang. Dia punya pasangannya, aku juga punya suamiku. Mainan yang nyaman bisa ditunda. Tapi tadi siang tanganku udah gatel hampir dorong dia ke dinding. Hampir. Untung aku nahan diri. Malam ini bukan jatah dia.
+
+Sekarang AC makin dingin. Dan aku pengen disentuh. Pengen dipake sampai lupa diri. Pilihan malam ini masih kebuka di layar HP. Aku belum milih, tapi udah nggak sabar. Dan nggak ada niat buat sabar lama-lama.
+
+Maafin aku, suamiku. Sepertinya malam ini istrimu bakal dinikmati laki-laki lain lagi.
