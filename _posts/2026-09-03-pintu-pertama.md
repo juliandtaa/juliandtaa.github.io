@@ -5,10 +5,18 @@ categories:
   - jurnal
 ---
 
-Tahun pertama aku masih nurut banget. Pulang kerja masak, nunggu dia, sex rutin di kamar malam minggu. Tubuhku tenang, nggak ada yang kurang. Suami selalu cukup, selalu siap. Aku pikir begitu aja sampai tua.
+Tahun pertama aku nurut aja. Seks kami rutin, cukup, hangat di malam-malam yang biasa. Tubuhku udah terbiasa sama ritme itu, sama tangan yang hafal setiap lekuk.
 
-Titiknya datang di tahun kedua. Ada training IT di luar kota, hotel biasa, peserta campur dari beberapa cabang. Malam ketiga abis makan malam aku ikut satu cowok dari cabang lain ngerokok di rooftop. Obrolan biasa. Lalu dia bilang kamarnya kosong, temannya belum balik. Aku ikut. Pintu dikunci, lampu dimatiin. Aku yang buka resletingnya duluan. Kontolnya langsung tegang di tangan, lebih tebal dari yang biasa aku pegang. Dia dorong aku ke tembok, merapat dari belakang. Licin, masuk dalam sekali. Aku nahan suara sambil pegangan ke dinding. Dia keluar di dalam, peju hangat nyembur, lengket di paha waktu aku jalan balik ke kamarku. Suami telepon malam itu, tanya sudah tidur belum. Aku jawab iya sambil peju masih menetes pelan.
+Tahun kedua datang dengan training di luar kota. Hotel yang sama tiap malam, kamar yang terlalu sepi setelah sesi panjang.
 
-Habis itu aku sadar ada hal lain. Kontol asing yang pakai aku, rahasia yang kebawa pulang, rasa ego yang naik tiap kali suami cium pipiku tanpa tahu. Tubuhku mulai lapar terus. Cari lagi, cari yang beda, yang terlarang. Yang pertama cuma pintu. Sekarang udah kebuka lebar.
+Malam itu aku duduk di lounge hotel. Cowok dari cabang lain ikut minum. Obrolan makin dekat, tawa makin dekat, gelas terus nambah, kepala mulai berat dan tubuhku salah tingkah tanpa alasan yang jelas.
 
-Malam ini aku nulis sambil sadar versi dulu udah mati. Yang sekarang cuma mau dipakai, mau peju di dalam, mau denyut yang bukan dari suami. Nggak ada yang nyalahin. Aku yang minta.
+Setengah sadar dia ngajak naik. Aku ngangguk aja dan ikut. Di dalam lift jarinya nempel di pinggangku, hangat dan asing, lalu pintu kamar kebuka tanpa banyak kata.
+
+Bau kulit asing memenuhi hidungku. Bukan suami. Tangannya meraba pelan, lapar, buka baju satu per satu. Kontol asing itu masuk perlahan, tebal, denyutnya jelas.
+
+Aku nahan napas saat dia dorong lebih dalam, licin, sampai pejunya tumpah di dalam dan ninggalin rasa lengket yang merayap.
+
+Telepon suami berdering tepat saat itu. Aku angkat, suara tenang, sementara peju masih kerasa mengalir pelan di antara pahaku.
+
+Baru malam itu aku sadar aku udah ketagihan. Sama kontol asing, sama rahasia yang menggigit, sama ego yang naik. Yang pertama cuma pintu.
