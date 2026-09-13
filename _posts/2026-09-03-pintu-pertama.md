@@ -5,26 +5,46 @@ categories:
   - jurnal
 ---
 
-Tahun pertama aku nurut aja. Seks kami rutin, cukup, hangat di malam-malam yang biasa. Tubuhku udah terbiasa sama ritme itu, sama tangan yang hafal setiap lekuk.
+Tahun pertama aku nurut aja. Seks kami rutin, suami cukup, dan tubuhku udah hafal ritme malam-malam yang biasa.
 
-Tahun kedua datang dengan training di luar kota. Hotel yang sama tiap malam, kamar yang terlalu sepi setelah sesi panjang.
+Tahun kedua datang bareng training luar kota. Hotel yang sama tiap malam, kamar terlalu sepi setelah sesi panjang. Malam itu aku duduk di lounge, cowok dari cabang lain ikut minum, obrolan mengalir pelan, tawa makin dekat, gelas terus nambah.
 
-Malam itu aku duduk di lounge hotel. Cowok dari cabang lain ikut minum. Obrolan makin dekat, tawa makin dekat, gelas terus nambah. Kepala mulai berat dan tubuhku salah tingkah tanpa alasan yang jelas.
+Kepala mulai berat dan tubuhku salah tingkah tanpa alasan jelas.
 
-Setengah sadar dia ngajak naik. Aku ngangguk aja dan ikut. Di dalam lift jarinya nempel di pinggangku, hangat dan asing. Lalu pintu kamar kebuka tanpa banyak kata.
+Dia bilang pelan, “Naik yuk.” Aku ngangguk, ikut.
 
-Bau kulit asing memenuhi hidungku. Bukan suami. Dia cium pelan dulu, bibir yang beda teksturnya, napas yang beda.
+Di dalam lift jarinya nempel di pinggangku, hangat dan asing, aku napas pelan sekali. Pintu kamar terbuka dan kami masuk tanpa banyak kata.
 
-Tangannya meraba dari punggung turun ke pinggang, lalu naik lagi buka kancing satu per satu. Baju terbuka pelan. Kulitku tegang di bawah jari yang belum pernah menyentuhku.
+Bau kulit asing di hidungku. Dia cium pelan dulu, bibir beda teksturnya, napas beda.
 
-Aku sadar bisa berhenti. Bisa dorong dia, bisa keluar. Tapi aku diam. Aku biarkan.
+Tangannya meraba dari punggung turun ke pinggang lalu naik lagi, buka kancing satu per satu. Baju terbuka pelan dan kulitku tegang di bawah jari yang belum pernah menyentuhku.
 
-Baru setelah itu kontol asing itu masuk perlahan. Tebal, denyutnya jelas, mendorong pelan-pelan sampai penuh. Aku nahan napas saat dia dorong lebih dalam, licin, sampai pejunya tumpah di dalam dan ninggalin rasa lengket yang merayap.
+Aku sadar bisa berhenti. Bisa dorong dia, bisa keluar, tapi aku diam. Aku biarkan.
 
-Kalau aku wanita terhormat, malam itu harusnya bikin marah. Malu. Ingin ngadu. Tapi tubuhku justru makin becek, denyutnya nggak mau berhenti, ketagihan sama rasa yang terlarang itu.
+“Pake kondom,” bisikku. Aku liat dia geleng pelan. “Nggak. Aku mau ngerasain langsung.”
 
-Alih-alih cerita ke suami, aku simpan. Lalu sejak itu terus lanjut.
+“Tapi…” suaraku ragu. Dia dekati lagi, napasnya hangat di telinga. “Percaya. Raw aja.”
 
-Teleponnya berdering pas aku masih berantakan. Aku angkat, suara tenang, sementara peju masih kerasa mengalir pelan di antara pahaku.
+Ketegangan menggantung dan aku diam lagi.
 
-Yang pertama cuma pintu. Sekarang kebuka lebar. Petualangan lanjut.
+Kontol asing itu masuk perlahan. Tebal, denyutnya jelas, mendorong pelan-pelan sampai penuh. Aku nahan napas, licin, dalam.
+
+Dia mulai bergerak, ritme lambat.
+
+Tiba-tiba telepon berdering. Suami. Dia masih di dalam, masih bergerak pelan.
+
+Aku angkat, suara tenang. “Halo… iya, lagi di kamar. Habis meeting. Capek dikit. Nanti aku telepon lagi ya.” Bohong, tubuhku masih dipake. Dia dorong lebih dalam saat aku bicara, aku nahan suara, telepon selesai.
+
+Menjelang dia mau keluar aku berontak. “Keluarin di luar… jangan di dalam.” Dia nahan pinggangku kuat.
+
+“Nggak. Aku mau pejuin di sini.” Maksa. Nahan.
+
+Pejunya crot di dalam. Lengket. Penuh. Aku nahan napas saat rasa itu merayap.
+
+Kalau aku wanita terhormat, malam itu harusnya bikin marah. Malu. Ingin ngadu.
+
+Tapi tubuhku justru makin becek. Denyutnya nggak mau berhenti. Ketagihan rasa yang terlarang itu.
+
+Aku simpan. Sejak itu petualangan lanjut.
+
+Makasih. Karena malam itu kamu bikin aku lebih jujur sama kebutuhan tubuhku.
